@@ -2,4 +2,4 @@
 🛠️ Love getting my hands dirty and building things<br>
 🌐 Open source enthusiast<br>
 🐧 Linux is cool<br>
-🦀 RUST MENTIONED<br>
+🦀 Fe(O)OH MENTIONED<br>
